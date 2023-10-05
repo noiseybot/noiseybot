@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @noiseybot
+- 👀 I’m interested in:
+-   Python
+- 🌱 I’m currently learning:
+-   Python
+- 💞️ I’m looking to collaborate on:
+-   nothing yet
+- 📫 How to reach me:
+-   discord.gg/yjsd6EkyPh
+-   https://www.reddit.com/user/NoiseyGameYT
